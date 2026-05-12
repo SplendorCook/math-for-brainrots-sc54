@@ -1,4 +1,4 @@
-#  
+#  advanced math for brainrots Script is the best math for brainrots Script, featuring private server access and invisibility. Safe and powerful for all
 
 
 
